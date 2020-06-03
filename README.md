@@ -1,0 +1,1 @@
+# kotayamamoto.github.io
